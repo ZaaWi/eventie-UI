@@ -289,9 +289,3 @@ charges would be 50$ / domain.
 </code>
 </pre>
 
-
-
-<h2>THANK YOU </h2>
-If you like this product, you may like our other products as well. 
-<a href="https://classiebit.com/products">Click here to see all our products</a> 
-
